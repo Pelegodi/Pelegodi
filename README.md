@@ -5,9 +5,9 @@
 - 🕷 Hi, I’m @Pelegodi        
 - 🕸 I’m currently learning "Cyber security"
 - 🕷 I’m looking to collaborate on Interesting and important things                            
-- 🕸 How to reach me Email "odipeleg9@gmail.com"                                                                      
+- 🕸 How to reach me "odipeleg9@gmail.com"                                                                      
 - 🕷 Pronouns: "Odini"                                                  
-- 🕸 Fun fact:i love Football
+- 🕸 Fun fact:i love Editing
                                                                     
                                                           
 
