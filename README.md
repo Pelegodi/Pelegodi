@@ -8,7 +8,7 @@
 - 🕷 I’m looking to Collaborate on compelling and crucial endeavors                            
 - 🕸 How to reach me "odipeleg9@gmail.com"                                                                                                                        
 - 🕷 One fact about me: I love Editing
-- 🕸 linkedin-"https://www.linkedin.com/in/peleg-odi-2905872b8/"
+
                                                                     
                                                           
 
