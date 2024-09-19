@@ -4,7 +4,7 @@
 
  
 - 🕷 Hi, I’m @Pelegodi        
-- 🕸 I’m currently Working in "One Taldor" as a Back Office & Technical Support Assistant
+- 🕸 I’m currently Working in "One Taldor" as a Back Office & Technical Support 
 - 🕷 I’m looking to Collaborate on compelling and crucial endeavors                            
 - 🕸 How to reach me 24\7: "odipeleg9@gmail.com"                                                                                                                        
 - 🕷 One fact about me: I am a big fan of soccer-Visca Barca
