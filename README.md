@@ -7,7 +7,7 @@
 - 🕸 I’m currently learning "Cyber security"
 - 🕷 I’m looking to Collaborate on compelling and crucial endeavors                            
 - 🕸 How to reach me "odipeleg9@gmail.com"                                                                                                                        
-- 🕷 One fact about me: I love Editing
+- 🕷 One fact about me: I Am A Big Fan Of Soccer-Visca Barca
 
                                                                     
                                                           
